@@ -1,4 +1,4 @@
-# 
+# Turbo Process Explorer plugins para Mac OS | Premium Process Explorer plugins para PC Windows. Con ajuste de CPU y creación de archivos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
